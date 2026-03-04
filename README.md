@@ -20,7 +20,7 @@ Note : If project doesnrt work on your sytem or If you get any errors. Let me kn
 
 ### Mail : pradhansonali748@gmail.com 
 
-### WhatsApp: **+91 9777295251
+### WhatsApp: **+91 9777295251**
 
 
 
